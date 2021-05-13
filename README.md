@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jens6969
+- 👀 I’m interested in fivem server and files
+- 🌱 I’m currently learning HTML/HTML5 CSS.
+- 📫 How to reach me dm me on discord (Jen$#5011)
